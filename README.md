@@ -11,6 +11,6 @@ Operation check
 
 - Quest2
 
-Qiita (Japanese)
+PowerPoint (Japanese)
 
-後日投稿
+https://drive.google.com/file/d/1RLEU4RS4KiAWJq4BKMgKsjdwQaHFV3Ma/view?usp=sharing
